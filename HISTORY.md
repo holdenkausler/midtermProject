@@ -10,7 +10,8 @@ The first franchise store opened in Eau Claire, Wisconsin. In 2001, the hundredt
 
 In 2007, the 500th store opened in Seattle, Washington, and in 2010, the 1,000th opened in Beaverton, Oregon. As of March 2017, Jimmy John's had almost 3,000 stores with plans for expansion up to 5,000 more. Liautaud realized that, in order to grow, he would need help acquiring better locations for his stores. Since he had little expertise in real estate, he decided to take on a partner who did. In January 2007, Liautaud sold a 33% stake to Weston Presidio, a San Francisco–based private-equity firm. In the first year after partnering with Weston Presidio, 100 real estate deals were closed.The company has completed two recapitalizations since Weston Presidio's investment.
 
-In the summer of 2015, pictures of Liautaud posing with big game circulated on social media, leading to increased calls to boycott his restaurants. In a 2015 interview with the Chicago Tribune, Liautaud said, "I don't hunt big African game anymore."
+In the summer of 2015, pictures of Liautaud posing with big game circulated on social media, leading to increased calls to boycott his restaurants. In a 2015 interview with the Chicago Tribune, Liautaud said, 
+> "I don't hunt big African game anymore."
 
 In September 2016, Jimmy John's announced that Roark Capital Group had agreed to acquire a majority stake in the company. Terms of the transaction were not immediately disclosed, though it was later clarified that Liautaud retained 35% ownership of the company as part of the deal. As part of the agreement, Liautaud would continue as chairman of the board.
 
