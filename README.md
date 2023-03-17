@@ -6,4 +6,5 @@ I love Jimmy Johns
 * [Menu](MENU.md)
 * [History](HISTORY.md)
 * [Quiz Code](CODE.md)
+* [Jimmy John's](JIMMY.md)
 * [Jimmy John's Website](https://www.jimmyjohns.com/?gclid=Cj0KCQjwn9CgBhDjARIsAD15h0ATxW9gONfs7IMxAYYurmoFGezfirnacFXx7PfW-sD_tgZ8yq9pz_YaAs8LEALw_wcB)
